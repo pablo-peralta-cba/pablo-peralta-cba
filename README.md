@@ -8,4 +8,4 @@
 
 📫 or through my LinkedIn: https://www.linkedin.com/in/pablo-peralta-936745189/ 
 
-🪩 Fun fact: Last year I performed for the first time as a live looper musician
+🪩 Fun fact: Last year I performed for the first time as a live looping musician
