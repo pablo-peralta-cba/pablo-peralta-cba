@@ -2,7 +2,7 @@
 ## Hi there 👋, I'm Pablo
 #### Full Stack Developer from Argentina
 
-🌱 I’m currently learning Nest JS
+🌱 I’m currently learning WordPress
 
 📫 How to reach me: pablofedericoperalta@gmail.com 
 
